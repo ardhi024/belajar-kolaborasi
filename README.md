@@ -1,2 +1,2 @@
 # belajar-kolaborasi
-belajar dicoding 1
+belajar dicoding sangat seru
